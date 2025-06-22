@@ -2,7 +2,7 @@
 - 👀 I’m interested in games and code
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on somthing soon
-- 📫 How to reach me my discord is @Thomas_gx4v
+- 📫 How to reach me my discord is @Bryce_gx4v
 - 😄 Pronouns: he/they
 - ⚡ Fun fact: erm what the sigma?
 
